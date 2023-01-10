@@ -1,1 +1,1 @@
-# our first jitu collaboration
+# Our first jitu collaboration
